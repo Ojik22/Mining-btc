@@ -1,0 +1,2 @@
+# Mining-btc
+Pencari nafkah
